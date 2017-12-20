@@ -1,3 +1,3 @@
-EXCATING!!!!!!!!!!!!!!!
+EXCITING!!!!!!!!!!!!!!!
 
 IT'S WORKS!
